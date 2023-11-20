@@ -5,9 +5,9 @@
  
   - idk what to else write here
  
--Languages
-          German(obviusly)
-          English(Since Kindergarden)
-          Danish(Currently learning and duolingo lmao) 
+- Languages
+         - German(obviusly)
+         - English(Since Kindergarden)
+         - Danish(Currently learning and duolingo lmao) 
 
 Note that i will update this thing eventualy ;D
