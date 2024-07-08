@@ -5,7 +5,7 @@
   - idk what to else write here
  
 - Languages
-  - German(obviusly).
+  - German(obviously).
   - English(Since Kindergarden).
   - Danish(Currently learning and duolingo lmao).
 
