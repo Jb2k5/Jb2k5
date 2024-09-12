@@ -1,4 +1,4 @@
-- Hiiiiiiii :3
+- Hello!
 - Pationate 45er driver 
 
   - I am a 18 year old Student from northern Germany and created this account to Work on my so called "Projektarbeit"
